@@ -15,9 +15,6 @@
 
 ![F1 Mercedes](https://user-images.githubusercontent.com/52009404/163841133-7b059508-3e4c-4f94-9ed1-e9a445265291.jpg)
 
-**F1 Red Bull Report**
-
-![F1 Red Bull Report](https://user-images.githubusercontent.com/52009404/163841139-a7578826-faf7-4179-8497-363f04991615.jpg)
 
 
 
